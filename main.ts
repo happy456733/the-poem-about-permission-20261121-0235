@@ -8,9 +8,9 @@ was the key — not the yes
 that followed, but the hand
 that reached for the door
 before it knew
-whether the door would open.
+whether it would open.
 
-Nothing was given
+Nothing arrived
 that I had not already carried:
 the power to knock,
 to wait,
